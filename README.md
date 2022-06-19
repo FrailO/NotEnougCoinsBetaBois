@@ -1,0 +1,2 @@
+# NotEnougCoinsBetaBois
+Beta DONT DOWLOAD WITH PERMISSIONS
